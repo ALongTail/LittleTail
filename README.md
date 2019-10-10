@@ -1,2 +1,3 @@
 # LittleTail
-SOOOOO CUTE!
+
+New in the world,hello!
